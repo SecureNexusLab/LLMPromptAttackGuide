@@ -17,7 +17,9 @@
 感谢各师傅的辛勤付出，在阅读和学习的过程中有遇到描述不妥或错误、或有对本手册遗漏知识的补充，亦或者在学习过程中需要帮助，您都可以通过以下联系方式联系我们，我们诚挚欢迎各位师傅的加入！
 
 :handshake: TheBinKing:e-mail:thebinking66@gmail.com
+
 :handshake: Yuchen Fang (@Anxiu0101):e-mail:anxiu.fyc@foxmail.com
+
 :handshake: littlebird :e-mail:mcc531640@gmail.com
 
 
